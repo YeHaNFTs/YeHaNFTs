@@ -1,0 +1,8 @@
+- Hi I'm YeHa🤗
+- I'm Selling NFT at Opensea & objkt.com
+- Right now I'm using AI because I'm only have an android
+- I hope you understand if my NFT it's not really good
+- but I'm trying to saving some money to buy a pc or iPad so i can draw my own NFT with my hand
+- please support me by collecting my NFT🥰
+- if you want to support me you can go to my twitter @YeHaNFTs or you can check my collection on opensea & objkt @YeHaNFTs
+- thank you ❤🌹
